@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I’m currently studying databases and programming languages ​​such as python and C#.
+How to reach me: TELEGRAM - https://t.me/EbolaKlim and gmail - klmnkandrej@gmail.com
+Fun fact: I love economic games
